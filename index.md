@@ -28,5 +28,3 @@ Tech Fields
 [Abraham Setya](https://www.instagram.com/abraham_setnug/) | 
 [David Rigan](https://www.instagram.com/dvrgme/)
 
-### Contact
-Send Messages [Here](mailto:colasive@gmail.com)
