@@ -18,18 +18,14 @@ Because sharing is caring, we care about art works, visual event and creative ap
 ### Team
 Creative Fields
 
-[Sigit Yudi](https://www.instagram.com/sigityudi/)
-
-[Rayyan](https://www.instagram.com/rayyan.jpg/)
-
+[Sigit Yudi](https://www.instagram.com/sigityudi/) | 
+[Rayyan](https://www.instagram.com/rayyan.jpg/) | 
 [Insan Budi](https://www.instagram.com/insanbudi24/)
 
 Tech Fields
 
-[Nurul Furqon](https://www.instagram.com/)
-
-[Abraham Setya](https://www.instagram.com/abraham_setnug/)
-
+[Nurul Furqon](https://www.instagram.com/) | 
+[Abraham Setya](https://www.instagram.com/abraham_setnug/) | 
 [David Rigan](https://www.instagram.com/dvrgme/)
 
 ### Contact
